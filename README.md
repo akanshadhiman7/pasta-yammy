@@ -1,2 +1,1 @@
-# pasta-yammy
-pasta yammy
+Hii i am going to share a very tasty recipe with you to cook it's my mother's one of special dish she cooks it's Pasta .i think you like pasta too much. It's easy recipe so let's begin.
